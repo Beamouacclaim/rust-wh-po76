@@ -1,4 +1,4 @@
-
+Instantáneo rust-trucos WH es el mejor rust-trucos WH con muerte instantánea y ESP. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
